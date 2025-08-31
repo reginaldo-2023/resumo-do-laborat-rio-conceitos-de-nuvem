@@ -1,0 +1,1 @@
+# resumo-do-laborat-rio-conceitos-de-nuvem
